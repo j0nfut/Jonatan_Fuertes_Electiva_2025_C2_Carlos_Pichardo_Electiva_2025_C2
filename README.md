@@ -1,2 +1,2 @@
-# Jonatan_Fuertes_Electiva_2025_C2_Carlos_Pichardo_Electiva_2025_C2
+# Jonatan_Fuertes_Electiva_2025_C2
 Repositorio para electiva 
